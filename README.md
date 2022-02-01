@@ -21,3 +21,7 @@ Look, if you had one shot, or one opportunity
 To seize everything you ever wanted-One moment
 Would you capture it or just let it slip?
 
+I'm beggin', beggin' you
+So, put your loving hand out, baby
+I'm beggin', beggin' you
+So, put your loving hand out, darling
